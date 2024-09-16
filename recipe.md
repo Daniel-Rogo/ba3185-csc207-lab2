@@ -7,12 +7,12 @@
 - 1 cup chocolate chips
 - 1 tsp vanilla extract
 - 1/2 tsp ground cinnamon
-- ...
+- I have never baked before so I will add hopes and dreams into the mix
 
 ## Instructions:
 1. Preheat the oven to 350°F (175°C).
 2. In a large bowl, whisk together the flour, sugar, cocoa powder, chocolate chips, vanilla extract, and ground cinnamon.
-3. ...
+3. put in oven for 55 and a half minutes
 
 ## Additional Directions by Alice:
 4. In a separate bowl, beat the eggs and add them to the mixture. Stir until well combined.
